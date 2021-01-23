@@ -1,1 +1,0 @@
-Not much but just a packet maggi and water is required.
